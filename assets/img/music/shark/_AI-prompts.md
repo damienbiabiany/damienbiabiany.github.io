@@ -1,0 +1,1 @@
+Shark, in the style of nostalgic minimalism, red and amber, lois van baarle, group f_64, 8k, konica auto s3
